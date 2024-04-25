@@ -2,7 +2,7 @@
 
 # Музыка
 ## Вальс
-https://github.com/i1last/last-bell-2024/assets/90155905/0b66da47-d06a-48a8-81b8-bba9f9742b47
+https://github.com/i1last/last-bell-2024/assets/90155905/636e7a6f-dc73-4742-8a00-0ecd9e9b77b1
 
 ## Куда уходит детство
 https://github.com/i1last/last-bell-2024/assets/90155905/13e7ccfd-d45d-4d04-b867-56898af89d46
